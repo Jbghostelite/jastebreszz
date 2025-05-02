@@ -1,0 +1,2 @@
+# jastebreszz
+SEBELUM BELI HARUS TAU APA ITU JASTEB 
